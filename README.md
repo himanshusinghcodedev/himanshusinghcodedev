@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **himanshusinghsvmsln@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Uskilling Myself
+- 🔭 **I’m currently working on:** Upskilling Myself
 - 🌱 **I’m currently learning:** Web Development
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** himanshusinghsvmsln@gmail.com
