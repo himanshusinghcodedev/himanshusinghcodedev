@@ -3,12 +3,12 @@
 
 Email Me 👉 ✉️ **himanshusinghsvmsln@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🔭 **I’m currently working on:** Upskilling Myself
+- 🔭 **I’m currently working on:** creating Netflix working clone.
 - 🌱 **I’m currently learning:** Web Development
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** himanshusinghsvmsln@gmail.com
-- 😄 **Pronouns:** Himanshu
-- ⚡ **Something about me :** I Love to always learn something new and Teaches tution for earning
+- 😄 **Pronouns:** He/Him
+- ⚡ **Something about me :** I love to learn something new, and I teach tuition to earn a living.
 ****
 ## 🌐 Socials:
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/profile.php?id=100055184974736) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/devvvkun) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/himanshusinghsln) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:Himanshusinghsvmsln@gmail.com) 
